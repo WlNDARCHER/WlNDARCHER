@@ -1,5 +1,7 @@
       ![](https://files.catbox.moe/e9dbjd.webp) ![](https://files.catbox.moe/g5i6fj.gif)
 
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=open+sans&pause=1000&color=7FAA51&width=435&lines=My+mission+is+still+incomplete...)](https://git.io/typing-svg)
+
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31r3run7mxwwbc7mrb6xp2dgrpnm&cover_image=true&theme=novatorem&show_offline=false&background_color=342828&interchange=false&bar_color=8ecc5c&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 ![I need a tutorial on every possible way that I could kill my husband I hate him with my entire soul I hope he burns and rots in hell](https://github.com/user-attachments/assets/82d00427-9ab6-441c-87ac-354f441f515f)
